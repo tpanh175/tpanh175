@@ -4,5 +4,7 @@
 - 🎶 I love music and all the ways to enjoy it: choir, listening, karaoke, recording, and trying my hand at DJing, on my own or with friends.
 - 🍰 I enjoy baking. Attempts: many. Successes: there's still room for glory =)))
 - 🎒 I took my first solo trip at 18 during my gap year, and I still think that's pretty cool.
+  (lmk if you also think so...)
+  
 - 🏆 My goal is to win a hackathon before I graduate.
 - 📫 Reach me at [tpanh175@gmail.com](mailto:tpanh175@gmail.com), [tpanh2@gmail.com](mailto:tpanh2@gmail.com), or [anhphuongtruong@usf.edu](mailto:anhphuongtruong@usf.edu).
